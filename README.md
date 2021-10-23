@@ -166,6 +166,6 @@ If you are under 18 years of age, reside in California, and have a registered ac
 CONTACT US
 If you have questions or comments about this Privacy Policy, please contact us at:
 
-TEXT+
+2048 - Classic Number Puzzle Game
 New York, NY
 chad.yeo.cy@gmail.com
